@@ -1,0 +1,1 @@
+A chocolate chip cookie is a cookie that has chocolate chips as its main ingredient which is cooked along with the cookie giving a chocolaty flavour to the plain cookie. Chocolate chip cookies originated in the United States around 1938, when Ruth Graves Wakefield chopped up a Nestlé semi-sweet chocolate bar and added the chopped chocolate to a cookie recipe.
